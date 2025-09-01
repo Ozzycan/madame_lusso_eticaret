@@ -164,9 +164,9 @@ madame-lusso-ecommerce/
 
 ## 📞 Destek
 
-- **Email**: info@madamelusso.com
-- **Telefon**: +90 850 346 5948
-- **Adres**: Fethiye, Muğla, Türkiye
+- **Email**: appleacmt@yahoo.com
+- **Telefon**: +90 533 579 1652
+- **Adres**: Yakutiye, Erzurum, Türkiye
 
 ## 📄 Lisans
 
